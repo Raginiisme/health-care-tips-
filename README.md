@@ -1,2 +1,6 @@
-# health-care-tips-
-New rspo
+https://lh3.googleusercontent.com/-gpRrj4E0rsI/Y8Z2fS1TOjI/AAAAAAAAC1U/AFxKf9RLPJAo_bdhwP5i2k7fmmv8yzz6wCNcBGAsYHQ/s1600/1673950841795834-2.png" style="margin-left: 1em; margin-right: 1em;">
+    <img border="0" height="240" src="https://lh3.googleusercontent.com/-gpRrj4E0rsI/Y8Z2fS1TOjI/AAAAAAAAC1U/AFxKf9RLPJAo_bdhwP5i2k7fmmv8yzz6wCNcBGAsYHQ/w320-h240/1673950841795834-2.png" width="320" />
+  </a>
+</div></div><div><br /></div><div>&nbsp; <a href="वसंतकुमार रस तथा सतगिलोय प्रवाल और प्रवाल पंचामृत" target="_blank">वसंतकुमार रस तथा सतगिलोय प्रवाल और प्रवाल पंचामृत</a> रस योगेंद्र रस मुक्ता पिष्टी त्रिफला गूगल की पुड़िया बनाकर दिन में तीन बार दूध के साथ सेवन करना चाहिए। परंतु यदि कोटोन की भी समस्या है तो सुख सेखर रस एवं&nbsp; बंगेश्वर रस को भी योग में मिला दे। साथी खाना खाने के बाद मधुमेह नाशिनी पट्टी एवं चित्रकादि वटी का भी प्रयोग किया जा सकता है।</div><div><br /></div><div>&nbsp; यदि डायबिटीज फूड की समस्या भी है तो रसराज का भी प्रयोग करें जिससे कि रक्त संचालन की समस्या ना हो और चलने फिरने में कठिनाई न हो।</div><div><div class="separator" style="clear: both; text-align: center;">
+  <a href="https://lh3.googleusercontent.com/-pLJ0RB_U6og/Y8Z2eEfy2YI/AAAAAAAAC1Q/B9YsrqRLYigogFnulBqtegtNM0ycsqeNwCNcBGAsYHQ/s1600/1673950837135096-3.png" style="margin-left: 1em; margin-right: 1em;">
+    <img border="0" height="320" src="https://lh3.googleusercontent.com/-pLJ0RB_U6og/Y8Z2eEfy2YI/AAAAAAAAC1Q/B9YsrqRLYigogFnulBqtegtNM0ycsqeNwCNcBGAsYHQ/w213-h320/1673950837135096-3.png" width="213" />
